@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "The important thing is not how long you live. It’s what you accomplish with your life." 💬
+> "I rest, I rust." 💬
 <!--END_QUOTE-->
 
 
