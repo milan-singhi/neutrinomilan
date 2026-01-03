@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "If you don't take risks, you can't create a future." 💬
+> "Hard work is worthless for those that don’t believe in themselves. — Naruto Uzumaki" 💬
 <!--END_QUOTE-->
 
 
