@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "It’s not dying that frightens us. It’s living without ever having done our best." 💬
+> "If you don't take risks, you can't create a future." 💬
 <!--END_QUOTE-->
 
 
