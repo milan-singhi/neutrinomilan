@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "The strong should aid and protect the weak. Then, the weak will become strong, and they in turn will aid and protect those weaker than them. — Tanjiro Kamado" 💬
+> "There's no shame in falling down! The true shame is to not stand up again!" 💬
 <!--END_QUOTE-->
 
 
