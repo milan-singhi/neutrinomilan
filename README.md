@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "Fear is not evil. It tells you what weakness is. And once you know your weakness, you can become stronger as well as kinder." 💬
+> "It’s not dying that frightens us. It’s living without ever having done our best." 💬
 <!--END_QUOTE-->
 
 
