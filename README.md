@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "If you don't take risks, you can't create a future." 💬
+> "There's no shame in falling down! The true shame is to not stand up again!" 💬
 <!--END_QUOTE-->
 
 
