@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "People, who can't throw something important away, can never hope to change anything." 💬
+> "The important thing is not how long you live. It’s what you accomplish with your life." 💬
 <!--END_QUOTE-->
 
 
