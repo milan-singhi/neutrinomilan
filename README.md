@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "The important thing is not how long you live. It’s what you accomplish with your life." 💬
+> "If you don't take risks, you can't create a future." 💬
 <!--END_QUOTE-->
 
 
