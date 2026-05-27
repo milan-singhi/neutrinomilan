@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "Hard work is worthless for those that don’t believe in themselves. — Naruto Uzumaki" 💬
+> "Any pain I go through, any suffering I go through — if it doesn’t kill me, it will make me stronger." 💬
 <!--END_QUOTE-->
 
 
