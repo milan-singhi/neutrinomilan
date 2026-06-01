@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "There's no shame in falling down! The true shame is to not stand up again!" 💬
+> "Any pain I go through, any suffering I go through — if it doesn’t kill me, it will make me stronger." 💬
 <!--END_QUOTE-->
 
 
