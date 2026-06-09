@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "If you don't take risks, you can't create a future." 💬
+> "People, who can't throw something important away, can never hope to change anything." 💬
 <!--END_QUOTE-->
 
 
