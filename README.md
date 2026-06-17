@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "I rest, I rust." 💬
+> "Any pain I go through, any suffering I go through — if it doesn’t kill me, it will make me stronger." 💬
 <!--END_QUOTE-->
 
 
