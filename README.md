@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "People, who can't throw something important away, can never hope to change anything." 💬
+> "Hard work is worthless for those that don’t believe in themselves. — Naruto Uzumaki" 💬
 <!--END_QUOTE-->
 
 
