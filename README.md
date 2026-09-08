@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "Fear is not evil. It tells you what weakness is. And once you know your weakness, you can become stronger as well as kinder." 💬
+> "People, who can't throw something important away, can never hope to change anything." 💬
 <!--END_QUOTE-->
 
 
