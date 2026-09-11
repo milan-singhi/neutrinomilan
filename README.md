@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "Fear is not evil. It tells you what weakness is. And once you know your weakness, you can become stronger as well as kinder." 💬
+> "If you don't take risks, you can't create a future." 💬
 <!--END_QUOTE-->
 
 
