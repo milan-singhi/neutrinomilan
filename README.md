@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "It’s not dying that frightens us. It’s living without ever having done our best." 💬
+> "I rest, I rust." 💬
 <!--END_QUOTE-->
 
 
