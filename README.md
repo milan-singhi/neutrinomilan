@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "The strong should aid and protect the weak. Then, the weak will become strong, and they in turn will aid and protect those weaker than them. — Tanjiro Kamado" 💬
+> "The important thing is not how long you live. It’s what you accomplish with your life." 💬
 <!--END_QUOTE-->
 
 
