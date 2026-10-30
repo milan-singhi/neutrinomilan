@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "It’s not dying that frightens us. It’s living without ever having done our best." 💬
+> "The important thing is not how long you live. It’s what you accomplish with your life." 💬
 <!--END_QUOTE-->
 
 
