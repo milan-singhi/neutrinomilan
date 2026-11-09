@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "Hard work is worthless for those that don’t believe in themselves. — Naruto Uzumaki" 💬
+> "The important thing is not how long you live. It’s what you accomplish with your life." 💬
 <!--END_QUOTE-->
 
 
