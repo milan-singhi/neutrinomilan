@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "It’s not dying that frightens us. It’s living without ever having done our best." 💬
+> "Hard work is worthless for those that don’t believe in themselves. — Naruto Uzumaki" 💬
 <!--END_QUOTE-->
 
 
