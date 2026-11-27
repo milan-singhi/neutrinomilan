@@ -14,7 +14,7 @@
 
 ### ✍️ Daily Quote
 <!--START_QUOTE-->
-> "The strong should aid and protect the weak. Then, the weak will become strong, and they in turn will aid and protect those weaker than them. — Tanjiro Kamado" 💬
+> "It’s not dying that frightens us. It’s living without ever having done our best." 💬
 <!--END_QUOTE-->
 
 
